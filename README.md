@@ -1,5 +1,4 @@
 <p align="center"><img width="1080" height="180" alt="tumblr_a33f51ba751d282e34862c0379852ac7_ba2c0619_540" src="https://github.com/user-attachments/assets/f5d97abc-4d36-4f38-a19c-334c02487a91" /></p>
-<p align="center"><img width="540" height="540" src="https://64.media.tumblr.com/1e1d7405f8716f6a427463c47b8750e7/tumblr_oxr35osoKz1usjesqo1_400.gifv"/></p>
 <p align="center">hello, im max!</p>
 <p align="center">all my info is in my prns.cc and my strawpage, including dni, byi, and some fandoms im in</p>
 <p align="center">c+h is always okay!</p>
